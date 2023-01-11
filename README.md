@@ -1,2 +1,2 @@
 # Certificate letter
-See the short course participation certificate letters.  
+See the certificate letters for the short courses participation.  

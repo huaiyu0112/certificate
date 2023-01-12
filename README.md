@@ -1,2 +1,2 @@
 # Certificate letter
-See the certificate letters for stat course participation.  
+See the certificate letters for short course participation.  
